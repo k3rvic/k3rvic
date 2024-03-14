@@ -1,1 +1,1 @@
-chuj wam do pizdy lalalala
+cpunstwo sie rozwija
